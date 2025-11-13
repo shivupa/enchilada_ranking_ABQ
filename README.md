@@ -1,4 +1,4 @@
-# Ranking Enchiladas Nov 2025 trip (3 cheese stacked blue corn red unless there isn't blue in which case 3 cheese rolled red):
+# Ranking Enchiladas in ABQ (Nov 2025 trip)
 These are my subjective rankings. If there is a place you think I should try then please open an issue or contact me.
 
 
