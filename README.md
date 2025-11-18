@@ -20,7 +20,8 @@ red chile
   2. Duran's station (Amazing food and easy second to the excellent Cervantes, but rice is not part of the combo. Excellent vibes -- feels like coming home.)
   3. El Patio (Really good, but weak chile. Too runny/soupy chile. Also, they don't do rice.)
   4. Papa Felipe's (Enjoyable. Doesn't knock your socks off, but its great. Both rolled and blue stacked are good. Great salsa.) 
-  5. Los Cuates (I normally really like this place, but the stacked didn't have the cheese melted all the way through. The rolled are great. Red chile is good).
+  5. Cocinia Azul (Original location. Good but very plain. The chile has a good heat but is very simple. The whole dish feels like something is missing. Really limited menu for vegetarians. Sopapillas are mid.)
+  6. Los Cuates (I normally really like this place, but the stacked didn't have the cheese melted all the way through. The rolled are great. Red chile is good).
 
 # Unranked (coming soon):
 
